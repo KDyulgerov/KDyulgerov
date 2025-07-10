@@ -1,6 +1,6 @@
 ### Hi, I am Kaloyan Dyulgerov! 👋
 
-🚀 Reliability meets Ambition | 🎯 Goal-Oriented & Detail-Obsessed
+🚀 Driven by ambition, inspired by success. | 🎯 Goal-Oriented & Detail-Obsessed
 
 ### GitHub Stats
 
